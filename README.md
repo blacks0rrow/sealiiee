@@ -1,3 +1,5 @@
+![Dipper](https://i.pinimg.com/originals/7d/d0/18/7dd0181644a0bffb46d8eab5229ce978.gif)
+
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
 - ❥ [basic dni criteria](https://basic-dni.crd.co/) 
 - ❥ "I'm gonna touch you" jokes/comments 
@@ -23,7 +25,6 @@
 - ❥ *Gravity falls*
 - ❥ Pressure
 - ❥ OMORI
-
 <!---
 sealiiee/sealiiee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
