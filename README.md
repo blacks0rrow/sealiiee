@@ -9,6 +9,14 @@
 - ୨୧ If I have dniuf/cf in my name, I'm likely in a bad mood and I'm only there to wait for my friends or find something interesting to do.
 - ୨୧ Semi-verbal unless friends or I feel comfortable enough to talk !
 
+**˗ˏˋ ᯓ★ "IWC FANDOMS" ˎˊ˗**
+> ✦ People in these fandoms minimize interaction unless you're friends with me.
+- ୨୧ The Coffin of Andy and Leyley
+- ୨୧ Hazbin hotel / Helluva Boss
+- ୨୧ Phighting!
+- ୨୧ Dandy's world
+- ୨୧ Regretevator
+
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in *italics* are my current biggest fixations !
 - ୨୧ *Daybreak 2*
