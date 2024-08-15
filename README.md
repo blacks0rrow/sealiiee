@@ -1,28 +1,28 @@
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
-- ୨୧ [basic dni criteria](https://basic-dni.crd.co/) 
-- ୨୧ "I'm gonna touch you" jokes/comments 
+- ❥ [basic dni criteria](https://basic-dni.crd.co/) 
+- ❥ "I'm gonna touch you" jokes/comments 
 
 **˗ˏˋ ᯓ★ BYI ˎˊ˗**
 
-- ୨୧ I'm normally too shy to approach first unless you're a friend I feel comfortable approaching, feel free 2 int 1st :D
-- ୨୧ Unless name says otherwise ( dniuf/dniuc ) , free to int ! just don't be weird !!
-- ୨୧ If I have dniuf/cf in my name, I'm likely in a bad mood and I'm only there to wait for my friends or find something interesting to do.
-- ୨୧ Semi-verbal unless friends or I feel comfortable enough to talk !
+- ❥ I'm normally too shy to approach first unless you're a friend I feel comfortable approaching, feel free 2 int 1st :D
+- ❥ Unless name says otherwise ( dniuf/dniuc ) , free to int ! just don't be weird !!
+- ❥ If I have dniuf/cf in my name, I'm likely in a bad mood and I'm only there to wait for my friends or find something interesting to do.
+- ❥ Semi-verbal unless friends or I feel comfortable enough to talk !
 
 **˗ˏˋ ᯓ★ "IWC FANDOMS" ˎˊ˗**
 > ✦ People in these fandoms minimize interaction unless you're friends with me.
-- ୨୧ The Coffin of Andy and Leyley
-- ୨୧ Hazbin hotel / Helluva Boss
-- ୨୧ Phighting!
-- ୨୧ Dandy's world
-- ୨୧ Regretevator
+- ❥ The Coffin of Andy and Leyley
+- ❥ Hazbin hotel / Helluva Boss
+- ❥ Phighting!
+- ❥ Dandy's world
+- ❥ Regretevator
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in *italics* are my current biggest fixations !
-- ୨୧ *Daybreak 2*
-- ୨୧ *Gravity falls*
-- ୨୧ Pressure
-- ୨୧ OMORI
+- ❥ *Daybreak 2*
+- ❥ *Gravity falls*
+- ❥ Pressure
+- ❥ OMORI
 
 <!---
 sealiiee/sealiiee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
