@@ -1,6 +1,6 @@
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
 - ୨୧ [basic dni criteria](https://basic-dni.crd.co/) 
-- ୨୧ ︶ "I'm gonna touch you" jokes/comments 
+- ୨୧ "I'm gonna touch you" jokes/comments 
 
 **˗ˏˋ ᯓ★ BYI ˎˊ˗**
 
