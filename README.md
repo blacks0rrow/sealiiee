@@ -1,4 +1,4 @@
-![Dipper](https://i.pinimg.com/originals/7d/d0/18/7dd0181644a0bffb46d8eab5229ce978.gif)
+![silly](https://i.pinimg.com/originals/4d/3e/d2/4d3ed2fd7fe7afcdf9ce3aa54e318e08.gif)
 
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
 - ❥ [basic dni criteria](https://basic-dni.crd.co/) 
