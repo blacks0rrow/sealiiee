@@ -20,7 +20,7 @@
 - ❥ Regretevator
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
-> ✦ Those in *italics* are my current biggest fixations !
+> ✦ Those in *italics* are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN ITALICS !! :3
 - ❥ *Daybreak 2*
 - ❥ *Gravity falls*
 - ❥ Pressure
