@@ -17,7 +17,6 @@
 - ❥ Hazbin hotel / Helluva Boss
 - ❥ Phighting!
 - ❥ Dandy's world
-- ❥ Regretevator
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in *italics* are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN ITALICS !! :3
