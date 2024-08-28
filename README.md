@@ -22,6 +22,8 @@
 > ✦ Those in **BOLD** are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN BOLD !! :3
 - ❥ **Daybreak 2**
 - ❥ **Gravity falls**
+- ❥︎ **Laufey**
+- ❥︎ Chappell Roan
 - ❥ Roblox
 <!---
 sealiiee/sealiiee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
