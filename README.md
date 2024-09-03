@@ -16,7 +16,6 @@
 - ❥ *The Coffin of Andy and Leyley*
 - ❥ *Hazbin hotel / Helluva Boss*
 - ❥ Phighting!
-- ❥ Dandy's world
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in **BOLD** are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN BOLD !! :3
