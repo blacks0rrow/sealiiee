@@ -2,7 +2,7 @@
 
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
 - ❥ [basic dni criteria](https://basic-dni.crd.co/) 
-- ❥ "I'm gonna touch you" jokes/comments 
+- ❥ "I'm gonna touch you" jokes/comments
 
 **˗ˏˋ ᯓ★ BYI ˎˊ˗**
 
@@ -10,6 +10,7 @@
 - ❥ Unless name says otherwise ( dniuf/dniuc ) , free to int ! just don't be weird !!
 - ❥ If I have dniuf/cf in my name, I'm likely in a bad mood and I'm only there to wait for my friends or find something interesting to do.
 - ❥ Semi-verbal unless friends or I feel comfortable enough to talk !
+- ❥ Even if reclaimable, try not to say slurs around me, thanks "^^
 
 **˗ˏˋ ᯓ★ "IWC / DNI FANDOMS" ˎˊ˗**
 > ✦ People in these fandoms minimize interaction unless you're friends with me. To those not in italics, I may like the game/show/series itself, but I dislike the fandom. *Those in italics dni.*
