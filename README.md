@@ -12,11 +12,10 @@
 - ❥ Semi-verbal unless friends or I feel comfortable enough to talk !
 - ❥ Even if reclaimable, try not to say slurs around me, thanks "^^
 
-**˗ˏˋ ᯓ★ "IWC / DNI FANDOMS" ˎˊ˗**
-> ✦ People in these fandoms minimize interaction unless you're friends with me. To those not in italics, I may like the game/show/series itself, but I dislike the fandom. *Those in italics dni.*
-- ❥ *The Coffin of Andy and Leyley*
-- ❥ *Hazbin hotel / Helluva Boss*
-- ❥ Phighting! [i can make exceptions]
+**˗ˏˋ ᯓ★ DNI FANDOMS ˎˊ˗**
+> ✦ Please kindly dni if you're a big fan of these sources. They make me kind of uncomfortable.
+- ❥ The Coffin of Andy and Leyley
+- ❥ Hazbin hotel / Helluva Boss
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in **BOLD** are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN BOLD !! :3
