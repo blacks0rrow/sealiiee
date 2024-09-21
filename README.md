@@ -11,6 +11,7 @@
 - ❥ If I have dniuf/cf in my name, I'm likely in a bad mood and I'm only there to wait for my friends or find something interesting to do.
 - ❥ Semi-verbal unless friends or I feel comfortable enough to talk !
 - ❥ Even if reclaimable, try not to say slurs around me, thanks "^^
+- ❥ Try not to do fart/poop jokes around me ! it makes me uncomfy !
 
 **˗ˏˋ ᯓ★ DNI FANDOMS ˎˊ˗**
 > ✦ Please kindly dni if you're a big fan of these sources. They make me kind of uncomfortable.
