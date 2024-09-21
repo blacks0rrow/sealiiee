@@ -16,7 +16,7 @@
 > ✦ People in these fandoms minimize interaction unless you're friends with me. To those not in italics, I may like the game/show/series itself, but I dislike the fandom. *Those in italics dni.*
 - ❥ *The Coffin of Andy and Leyley*
 - ❥ *Hazbin hotel / Helluva Boss*
-- ❥ Phighting!
+- ❥ Phighting! [i can make exceptions]
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in **BOLD** are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN BOLD !! :3
