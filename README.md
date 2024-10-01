@@ -1,4 +1,4 @@
-![silly](https://i.pinimg.com/originals/4d/3e/d2/4d3ed2fd7fe7afcdf9ce3aa54e318e08.gif)
+![silly](https://media.discordapp.net/attachments/1288095341773852732/1290658026067460117/GIF-241001_205331.gif?ex=66fd4274&is=66fbf0f4&hm=b8bff03f6042e6971c26821b33d66b4676a32329ccfff05891bd6242978e1186&=)
 
 **˗ˏˋ ᯓ★ DNI ˎˊ˗**
 - ❥ [basic dni criteria](https://basic-dni.crd.co/) 
