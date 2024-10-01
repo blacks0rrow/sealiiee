@@ -20,8 +20,8 @@
 
 **˗ˏˋ ᯓ★ INTERESTS ˎˊ˗**
 > ✦ Those in **BOLD** are my current biggest fixations ! Please int if you like any of these , ESPECIALLY THE ONES IN BOLD !! :3
-- ❥ **Running Man Animation** [PLS INT ILY GUYS]
-- ❥ **Daybreak 2**
+- ❥ **Running Man Animation** *[PLS INT ILY GUYS]*
+- ❥ **Daybreak 2** *[underrated rblx game, int okay ily guys]*
 - ❥ **Gravity falls**
 - ❥︎ **Laufey**
 - ❥︎ Chappell Roan
